@@ -1,0 +1,3 @@
+- hi im goose
+- i like strawberries
+- i play valorant
